@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AAVJ960320HCLYLN02
+AAVJ960320HCLYLN02
